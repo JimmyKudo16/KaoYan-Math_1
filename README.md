@@ -6,3 +6,5 @@
 
 还附带一张标准答题卡pdf文件以供打印使用
 
+由于github空间有限，现将文件放到百度网盘，通过网盘分享的文件：考研数学一
+链接: https://pan.baidu.com/s/1iI3oFXYoiGXb4M0O6NAm_w?pwd=eh6i 提取码: eh6i 
